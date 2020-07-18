@@ -1,6 +1,3 @@
-### Software Architect | Developer | Design Thinker
-
-
 
 ## About Me
 
